@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open source contribution; 
 - 📫 How to reach me 👇👇👇
   - Linkedin (link 👉👉👉) https://www.linkedin.com/in/john-spurgeon-k/ ,
-  - Insta (link 👉👉👉) ,
+  - Insta (link 👉👉👉) https://www.instagram.com/_john_spurgeon/ ,
   - or through my email (link 👉👉👉) johnspurgeon820@gmail.com ;
 
 - 😄 Pronouns: He/Him;
