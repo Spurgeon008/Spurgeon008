@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spurgeon008;
-- 👀 I’m interested in Programming and i am proficient in C,C++ and Python(Django)  
+- 👀 I’m interested in Programming, I am proficient in C,C++ and Python and with Frameworks & library like Django && React;  
 - 🌱 I’m currently learning B.Tech-Information Technology; 
 - 💞️ I’m looking to collaborate on open source contribution; 
 - 📫 How to reach me 👇👇👇
